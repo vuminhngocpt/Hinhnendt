@@ -5,6 +5,7 @@
 
 [Tải đầy đủ bộ hình nền điện thoại dễ thương, cute](https://drive.google.com/drive/folders/1tYw19V8kxPiC0bMoLmMdc_9-EN5dBc6o?usp=sharing&itm_source=hoidap&itm_medium=shortcode&itm_content=button_noibat)
 
+[Tải đầy đủ bộ hình nền điện thoại cool, ngầu](https://drive.google.com/drive/folders/1B5Qt6o5Uby2CW5hr--TysRbQj9cyHB12?usp=sharing&itm_source=hoidap&itm_medium=shortcode&itm_content=button_noibat)
 
 
-    - ©️2025 Vu Minh Ngoc
+     ©️2025 Vu Minh Ngoc
