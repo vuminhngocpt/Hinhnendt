@@ -1,4 +1,4 @@
-#### Hình Ảnh Và Hình Nền
+#### Hình Ảnh Và Hình Nền Admin Đang Dùng
 [![i-Frame-Screenshot-03-03-28-4-25.png](https://i.postimg.cc/1tkykgSP/i-Frame-Screenshot-03-03-28-4-25.png)](https://postimg.cc/cgcqYL65)
 #### Bộ Sưu Tập Ảnh Sưu Tầm
 `Liên Hệ Nếu Bạn Cho Là Ảnh Tôi Cung Cấp Vi Phạm Bản Quyền Của Bạn , Tôi Sẽ Xác Nhận Thông Tin Và Xoá Nếu Điều Đó Là Đúng`
