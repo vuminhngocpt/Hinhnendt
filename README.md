@@ -7,7 +7,7 @@
 
 [Tải trọn bộ hình nền điện thoại 4K, đa dạng chủ đề](https://drive.google.com/drive/mobile/folders/1WdCNxE-3_MbyQgjB4Cyzx33XvDa14s2R?usp=sharing&itm_source=hoidap&itm_medium=shortcode&itm_content=button_noibat)`Google link`
 
-[Tải đầy đủ bộ hình nền điện thoại dễ thương, cute](https://drive.google.com/drive/folders/1tYw19V8kxPiC0bMoLmMdc_9-EN5dBc6o?usp=sharing&itm_source=hoidap&itm_medium=shortcode&itm_content=button_noibat)
+[Tải đầy đủ bộ hình nền điện thoại dễ thương, cute](https://drive.google.com/drive/folders/1tYw19V8kxPiC0bMoLmMdc_9-EN5dBc6o?usp=sharing&itm_source=hoidap&itm_medium=shortcode&itm_content=button_noibat) `Google link`
 
 [Tải đầy đủ bộ hình nền điện thoại cool, ngầu](https://drive.google.com/drive/folders/1B5Qt6o5Uby2CW5hr--TysRbQj9cyHB12?usp=sharing&itm_source=hoidap&itm_medium=shortcode&itm_content=button_noibat)
 
