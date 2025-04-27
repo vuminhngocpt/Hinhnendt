@@ -1,6 +1,6 @@
-#### Hình Nền Của Tôi Đang Dùng
+#### Hình Tôi Đang Dùng
 [![i-Frame-Screenshot-03-03-28-4-25.png](https://i.postimg.cc/1tkykgSP/i-Frame-Screenshot-03-03-28-4-25.png)](https://postimg.cc/cgcqYL65)
-           [Tải Về Ảnh](https://i.postimg.cc/66m59drj/IMG-0043.webp)
+[Tải Về Ảnh Nền Này](https://i.postimg.cc/66m59drj/IMG-0043.webp)
 
 #### Bộ Sưu Tập Ảnh Sưu Tầm
 `Liên Hệ Nếu Bạn Cho Là Ảnh Tôi Cung Cấp Vi Phạm Bản Quyền Của Bạn , Tôi Sẽ Xác Nhận Thông Tin Và Xoá Nếu Điều Đó Là Đúng`
