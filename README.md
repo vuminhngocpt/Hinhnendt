@@ -11,5 +11,10 @@
 
 [Tải đầy đủ bộ hình nền điện thoại cool, ngầu](https://drive.google.com/drive/folders/1B5Qt6o5Uby2CW5hr--TysRbQj9cyHB12?usp=sharing&itm_source=hoidap&itm_medium=shortcode&itm_content=button_noibat) `Google Link`
 
+#### Ảnh Gái Xinh
+`bộ sưu tập ảnh gái xinh 8k cho điện thoại , ảnh sưu tập hoặc tạo băng Ai`
+ Ảnh Demo
+ [![IMG-0102.jpg](https://i.postimg.cc/fT8GSgx7/IMG-0102.jpg)](https://postimg.cc/cr89Vhk6)
+ 
 
      ©️2025 Vu Minh Ngoc
