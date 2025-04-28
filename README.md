@@ -16,7 +16,7 @@
 `bộ sưu tập ảnh gái xinh 8k cho điện thoại , ảnh sưu tập hoặc tạo băng Ai`
  Ảnh Demo
  [![IMG-0102.jpg](https://i.postimg.cc/fT8GSgx7/IMG-0102.jpg)](https://postimg.cc/cr89Vhk6)
- [Bấm Vào Đây Để Xem Bộ Sưu Tập ](test) `ảnh gái xinh được sưu tập dùng làm ảnh nền cho điện thoại bấm vào ảnh để vào trang tải ảnh gốc`
+ [Bấm Vào Đây Để Xem Bộ Sưu Tập ](https://github.com/vuminhngocpt/Anhgaixibhabbum) `ảnh gái xinh được sưu tập dùng làm ảnh nền cho điện thoại bấm vào ảnh để vào trang tải ảnh gốc`
  
 
      ©️2025 Vu Minh Ngoc
