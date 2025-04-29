@@ -17,6 +17,8 @@
  Ảnh Demo
  [![IMG-0102.jpg](https://i.postimg.cc/fT8GSgx7/IMG-0102.jpg)](https://postimg.cc/cr89Vhk6)
  [Bấm Vào Đây Để Xem Bộ Sưu Tập ](https://github.com/vuminhngocpt/Anhgaixibhabbum) `ảnh gái xinh được sưu tập dùng làm ảnh nền cho điện thoại bấm vào ảnh để vào trang tải ảnh gốc`
- 
+
+ #### Ảnh Hoạt Hình 
+ `bộ sưu tập ảnh hoạt hình đẹp cho điện thoại làm hình nền`
 
      ©️2025 Vu Minh Ngoc
