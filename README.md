@@ -20,6 +20,8 @@
 
  #### Ảnh Hoạt Hình 
  `bộ sưu tập ảnh hoạt hình đẹp cho điện thoại làm hình nền`
+ảnh demo
+[![IMG-0141.png](https://i.postimg.cc/yNTZQN24/IMG-0141.png)](https://postimg.cc/DW80m72B)
 
 [Bấm Vào Đây Để Vào Bộ Sưu Tập Ảnh Hoạt Hình](test)
 
