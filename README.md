@@ -25,4 +25,4 @@
 
 [Bấm Vào Đây Để Vào Bộ Sưu Tập Ảnh Hoạt Hình](test)
 
-     ©️2025 Vu Minh Ngoc
+        ©️2026 Vu Minh Ngoc
